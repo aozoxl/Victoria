@@ -6,6 +6,7 @@
 
 ![维多利亚大学毕业证样本（澳洲Victoria学位文凭证书样式展示）](https://www.cererfi.com/uploads/img1/20261014/6acf147f6eb22.jpg)
 
+💡 *图片来源声明：该图源自 [https://www.cererfi.com/auzhou/62.html](https://www.cererfi.com/auzhou/62.html) 未经授权禁止用于商业用途。*
 
 ---
 
